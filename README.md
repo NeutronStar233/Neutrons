@@ -1,2 +1,2 @@
 # Neutrons
-YI JIAN SAN LIAN!!!
+For the knowledge and the world.
